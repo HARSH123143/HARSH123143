@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @HARSH123143
+- 👋 Hi, I’m @Harsh Menghani
 - 👀 I’m interested in coding 
 - 🌱 I’m currently pursing my masters degree
 
